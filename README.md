@@ -1,3 +1,3 @@
-<!--aska\                   semogayanggggggggggggggggggggggggggggggg6
+<!--aska\                   semogayanggggggggggggggggggggggggggggggg
 saskasiaksiaskasikasikasiaiskasikas-->
 # loginAdmin
